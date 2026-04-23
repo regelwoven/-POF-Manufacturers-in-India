@@ -15,7 +15,7 @@ This article explains its real-world applications, industries, and benefits in p
 
 Understanding Polyolefin Shrink Film
 
-<b><a href="https://regalwoven.com/pof-shrink-film">POF shrink film</a><b> is a heat-sensitive plastic film that tightly wraps around a product when heat is applied. Once heated, the film shrinks uniformly and creates a secure, transparent protective layer.
+<b><a href="https://regalwoven.com/pof-shrink-film">POF shrink film</a></b> is a heat-sensitive plastic film that tightly wraps around a product when heat is applied. Once heated, the film shrinks uniformly and creates a secure, transparent protective layer.
 
 It is made from polyolefin-based polymers, which makes it:
 
