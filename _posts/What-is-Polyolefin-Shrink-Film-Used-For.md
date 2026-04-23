@@ -153,7 +153,7 @@ Proper shrink ratio
 Smooth machine performance
 Reliable supply chain
 
-Companies like Regal Woven, along with other packaging suppliers in India, focus on providing POF shrink film suitable for different industrial applications. Their role is not just supplying material, but ensuring that it performs well in real packaging environments.
+Companies like <a href="https://regalwoven.com/pof-shrink-film">Regal Woven</a>, along with other packaging suppliers in India, focus on providing POF shrink film suitable for different industrial applications. Their role is not just supplying material, but ensuring that it performs well in real packaging environments.
 
 Common Mistakes in Using Shrink Film
 
